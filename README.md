@@ -1,1 +1,0 @@
-# kview1012.github.io
